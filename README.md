@@ -1,1 +1,0 @@
-# certywallet.github.io
